@@ -1,2 +1,2 @@
-# umgritopelapaz.github.io
+# umgritopelapaz
 website da organização um grito pela paz
